@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @KevinYTR
-- 😄 Pronouns: He/Him
 - ⚡ Fun fact: ¯\_(ツ)_/¯
 - I'm just figuring stuff out for now :P
 
