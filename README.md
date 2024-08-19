@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KevinYTR
-- ⚡ Fun fact: ¯\_(ツ)_/¯
+- ⚡ Fun fact: ¯\\_(ツ)_/¯
 - I'm just figuring stuff out for now :P
 
 <!---
